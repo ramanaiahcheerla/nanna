@@ -1,9 +1,4 @@
 # nanna
 pavithrach
 ammaaaaaaaaaaa
-NNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNN
-PPPPPPPPPPPPPPPPPPPPPPPP
-pdddddddddddddddddddddddddddddddddhhhhhhhh
-oooooooooooooooooooooooooooooooo
-ooooooooooooooooo
-pavithra
+NNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNN
