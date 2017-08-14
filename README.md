@@ -2,7 +2,5 @@
 pavithrach
 ammaaaaaaaaaaa
 prathiiiiiiiiiiiiiiiiiiiiiiiii
-lllcvprahima
-llllllllllllllllllllllllll
-oooooooooooooooooooooooooo
+lllcvp
 pavi
