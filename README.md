@@ -1,7 +1,5 @@
 # nanna
 pavithrach
 ammaaaaaaaaaaa
-NNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNNN
-ssssssssssssssss
-kkkkkkkkkkkkkkkkkkkkkkkkkkkkk
+prathiiiiiiiiiiiiiiiiiiiiiiiii
 lllcvprahima
